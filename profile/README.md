@@ -7,7 +7,7 @@ GulfBridge Talent is an independent international
 workforce recruitment and mobilization company
 headquartered in Lucknow, India.
 
-Founded on 18 November 2018, GulfBridge Talent
+Founded on 18 November 2023, GulfBridge Talent
 connects employers across the GCC with skilled
 talent sourced from India.
 
